@@ -26,5 +26,5 @@ Para fazer parte da nossa comunidade, basta entrar em nossa comunidade no [Disco
 
 ---
 
-<p align="center"><i> Para pequenos gafanhotos 💜</i></p>
+<p align="center"><i> Para pequenos gafanhotos 💜 se tornarem jedis </i></p>
 
